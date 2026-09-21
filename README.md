@@ -1,4 +1,4 @@
-# José Segade 
+# Jose Segade 
 
 **Software Engineer**  
 
